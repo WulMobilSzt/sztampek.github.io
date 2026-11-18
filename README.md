@@ -1,0 +1,1 @@
+# sztampek.github.io
